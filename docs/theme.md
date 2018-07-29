@@ -21,6 +21,22 @@ of it happening.
 Is there a mechanism by which we can return to meaning? Additionally, for this to be explored, our character would
 need to be thrown into such an environment in which they were required to determine their own future.
 
+## The duality of having responsibility for others but yearning for self determinism
+
+As part of my growth in life I was imprinted with a systematic desire to see others benefit, even at the cost of
+myself. Such a requirement is fundamental to a working society, but also implies that I take on responsibility for
+others wellbeing. This responsibility changes the risk calculation for each decision that's required, increasing the
+consequences for each failure.
+
+The ostensible solution to this is to increase the equity I have such that I can continue to both take responsibility
+for those around me but also be able to take the necessary risks I need to to feel that my life is truly consequential,
+and as a result of the actions that I take.
+
+Practically, any increase in equity that I have results in me being more responsible for those that depend on me,
+trapping me in a cycle of responsibility at the cost of equity, though that equity is of limited use.
+
+The end of world would be an excuse to both capitalise on that equity but shed responsibility.
+
 ## Wonder
 
 Defined by wikipedia as:
