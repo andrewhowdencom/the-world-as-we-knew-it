@@ -20,6 +20,44 @@ entirely defensible to adhere to both choices.
 
 ## Timeline
 
+### Global Warming
+
+- Harder to grow food
+- No water in many areas
+- Large amounts of the population displaced due to famine
+
+### Sickness
+
+- Sickness generated from migrant population
+- Large pools of the population dying
+- The collapse of the global logistics chain
+
+### Famine
+
+- No logistics chain, no crops
+- A year goes past, no food
+- No food, an increase in pressure on government officials
+
+### The coup
+
+The collapse of modern society is perhaps best represented by a coup; that is, the military taking care of the failed
+government state.
+
+### Collapse and authoritarianism
+
+- The military is too fragmented due to leadership lost during the sickness
+- The monopolisation of resources, controlling of industry
+
+### A new round of sickness
+
+- Unable to regulate industry, leads to a combination of joblessness and supply failure
+- Water reservoirs are unclean, dysentery breaks out
+- Irrational violence
+
+### Discovery of the seed bank
+
+### Formation of a society around efforts to build small, highly regulated crops
+
 ### The end
 
 It's useful for the reader to know the notion of how the story ends, in a limited view. Given the context behind how
